@@ -1,1 +1,1 @@
-ERICK RDZ RMZ
+Erick Rodríguez Ramírez
