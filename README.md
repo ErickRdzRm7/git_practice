@@ -1,1 +1,1 @@
-erick rodriguez ramirez
+Erick Rodríguez Ramírez
